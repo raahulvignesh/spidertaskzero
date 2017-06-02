@@ -6,6 +6,7 @@
  
  Hi guys:exclamation::exclamation::exclamation: i'm _**Raahul Vignesh**_. i will turn **19** this **August** :birthday: :smiley:
  i'm doing my undergraduate program in **NIT TRICHY**. i'm kinda interested in programming but unfortunately fell in the hands of Electrical department:laughing:.
+ As far as **Education** is concerned, i was graduated from **St.judes public school and junior college**. Basically, i'm from **Coimbatore** :v:.
  ##### Skills and Goals
  ![Goals](http://www.allthingsclipart.com/images_01c/goals.04.jpg)
  
@@ -34,7 +35,4 @@ These were some of my earlier goals
  Mail me:e-mail: @ <raahulvignesh26@gmail.com>.
  
  call me :calling:@ :nine::seven::nine::one::zero::eight::four::eight::three::three:
- 
- ![pho](http://cliparting.com/wp-content/uploads/2016/05/Thank-you-powerpoint-tips-cliparts.jpg)
- 
 
